@@ -1,2 +1,2 @@
-# BlueBeads-Smart-Catalog
-katalog digital elegan yang menghadirkan koleksi anting, kalung, cincin, dan gelang dengan desain cantik untuk melengkapi setiap gaya.
+https://www.figma.com/design/7paWIJqkTD7ftRSnO1KzDr/Untitled?node-id=0-1&t=vWpyi0509ERX5dBq-1
+
